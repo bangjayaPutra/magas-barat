@@ -1,4 +1,0 @@
-# magas-barat
-
-
-Hai
